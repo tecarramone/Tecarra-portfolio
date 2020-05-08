@@ -1,3 +1,3 @@
 
  
-A early Portfolio. Will update as I gain experience.
+An early Portfolio. Will update as I gain experience.
